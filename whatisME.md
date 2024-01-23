@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Railvault.
+- 👀 I’m interested in apex cheese etc.
+- 🌱 I’m currently learning Python cs2 external cheese
+- 💂‍♀️ I can speak jp,eng
+- 😇 I live in japan! :Like sushi:
+- 🤫 looking for my discord friend. send me (hs_cpt)
